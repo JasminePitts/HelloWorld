@@ -1,1 +1,1 @@
-# HelloWorld
+Jasmine is an a dependable individual with drive to learn and accomplish. With a strong background in customer seervice and healthcare, she will make a great business analyst. # HelloWorld
